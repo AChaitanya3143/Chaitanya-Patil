@@ -1,1 +1,1 @@
-# Chaitanya-Patil
+# Etherix-Chaitanya-Portfolio
